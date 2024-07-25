@@ -1,4 +1,4 @@
-⚡ Hi 𖠋 ˗ˏˋ 𓅰 ˎˊ˗ in my early twenties. i love punk rock and heavy metal music and enjoy reading dystopian, fantasy, and psychological fiction. i watch cheesy rom-coms or true crime documentaries—nothing in between. kind of obsessed with the color black, can eat PB&J for days, can’t get enough of cheesy meals, and can survive on matcha lattes as long as they’re made with oat milk 𓃻
+hi 𖠋 ˗ˏˋ 𓅰 ˎˊ˗ in my early twenties. i love punk rock and heavy metal music and enjoy reading dystopian, fantasy, and psychological fiction. i watch cheesy rom-coms or true crime documentaries—nothing in between. kind of obsessed with the color black, can eat PB&J for days, can’t get enough of cheesy meals, and can survive on matcha lattes as long as they’re made with oat milk 𓃻
 
 
 <!-- 👋 Hi, I’m @sshasffri
